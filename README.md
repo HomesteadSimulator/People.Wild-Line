@@ -21,6 +21,9 @@
 ## Dome
 - [This Home Survives EF5 Tornadoes, Wildfires, and Costs $0 to Heat. Why Aren't We Using It?](https://youtu.be/B-WJqqw5GcE)
 
+## Geothermal Air Cooling
+- [This Pipe Will Cool Your Home For FREE Without Electricity. Why aren't we using it?](https://youtu.be/TO-Z7DgCv6I)
+
 ## Arched Building
 ### Quonset Hut
 - [This Home Survives Category 5 Hurricanes And Costs $0 To Maintain. Why Can't You Live In One?](https://youtu.be/hb7G5gXK9VQ)
